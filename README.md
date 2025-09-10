@@ -49,7 +49,7 @@ A IT-SOLUÇÕES nasceu para ligar a tecnologia à sua necessidade, oferecendo pr
 ## 🌐 Fale connosco
 
 - **E-mail:** [itsolucoes@gmail.com](mailto:arthuxavierjunior20@gmail.com)
-- **WhatsApp:** [+258 879374408](+258 879374408)
+- **WhatsApp:** [+258 879374408](879374408)
 
 
 ---
